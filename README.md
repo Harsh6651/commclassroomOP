@@ -1,4 +1,4 @@
 # commclassroomOP
 
-Kunal Kushwaha is my saviour.
+Kunal is my saviour.
 
